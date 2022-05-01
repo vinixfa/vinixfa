@@ -1,4 +1,4 @@
-#### Olá, sou o Vinicius Almeida.🙂
+#### Vinicius Almeida.🙂
 
 
 <div align="center">
